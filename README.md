@@ -1,2 +1,2 @@
 # Continuing-Professional-Education
-CPE Credits
+CPE Credits, Certifications, Workshops, Conferences
