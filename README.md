@@ -1,5 +1,5 @@
-## Continuing-Professional-Education
-# CPE Credits, Certifications, Workshops, Conferences
+# Continuing-Professional-Education
+## CPE Credits, Certifications, Workshops, Conferences
 
 **List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:**
 
@@ -11,41 +11,41 @@ https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-
 (DCCCD Bill J. Priest Institute for Economic Development)**
 https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Dallas/Fort Worth Retail Executives Association:
+**Dallas/Fort Worth Retail Executives Association:**
 https://www.eventbrite.com/e/january-2019-dfw-rea-event-gurmeet-singh-chief-digital-officer-and-chief-information-officer-of-7-tickets-52885205072?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Joey Ramos:
+**North Texas Tableau User Group (Organizer - Joey Ramos):**
 https://www.linkedin.com/groups/12131317/
                   ___ and ___
 https://www.eventbrite.com/e/october-2018-north-texas-tableau-user-group-tickets-50444552013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Founders Live:
+**Founders Live:**
 https://www.eventbrite.com/e/founders-live-dallas-tickets-53862306609?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-1 million cups, venture x:
+**1 million cups, venture x:**
 
-OrganizerThe C1 Innovation Lab And The DEC Network:
+**OrganizerThe C1 Innovation Lab And The DEC Network:**
 https://www.eventbrite.com/e/health-innovation-networking-event-tickets-62511173603?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-The National Society Of Collegiate Scholars:
+**The National Society Of Collegiate Scholars:**
 https://www.eventbrite.com/e/networking-with-nscs-dallas-chapters-tickets-59448483013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-National Black MBA Association | Dallas - Fort Worth Chapter:
+**National Black MBA Association | Dallas - Fort Worth Chapter:**
 https://www.eventbrite.com/e/learn-to-play-a-winning-game-corporate-spotlight-with-unitedhealth-group-tickets-62389218833?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-AA-ISP:
+**AA-ISP:**
 https://www.eventbrite.com/e/digital-sales-world-dallas-tickets-63112513226?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Lane Gorman Trubitt, LLC (LGT):
+**Lane Gorman Trubitt, LLC (LGT):**
 https://www.eventbrite.com/e/summit-2019-tickets-57537050868?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-SMU Master Of Arts In Design And Innovation (MADI):
+**SMU Master Of Arts In Design And Innovation (MADI):**
 https://www.eventbrite.com/e/smu-inside-the-designers-studio-with-james-helms-tickets-56441257320?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Rancher Labs:
+**Rancher Labs:**
 https://www.eventbrite.com/e/rancher-rodeo-dallas-tickets-62179999051?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Dallas Innovation Alliance:
+**Dallas Innovation Alliance:**
 https://www.eventbrite.com/e/dia-may-munch-learn-celebrate-the-new-innov8te-incubator-companies-tickets-61169733319?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
 NFTE North Texas:
