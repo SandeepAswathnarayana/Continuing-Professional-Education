@@ -4,6 +4,7 @@
 *List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:*
 
 
+
 **Southern Dallas Progress:**
 https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
