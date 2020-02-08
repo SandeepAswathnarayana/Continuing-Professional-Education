@@ -1,7 +1,5 @@
-# Continuing-Professional-Education
-CPE Credits, Certifications, Workshops, Conferences
-
-List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past.
+## Continuing-Professional-Education
+# CPE Credits, Certifications, Workshops, Conferences
 
 **List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:**
 
@@ -9,8 +7,8 @@ List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moder
 **Southern Dallas Progress:**
 https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-# OrganizerSouthern Dallas Progress Community Development Corporation:
-(DCCCD Bill J. Priest Institute for Economic Development)
+**OrganizerSouthern Dallas Progress Community Development Corporation:
+(DCCCD Bill J. Priest Institute for Economic Development)**
 https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
 Dallas/Fort Worth Retail Executives Association:
