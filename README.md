@@ -1,7 +1,7 @@
 # Continuing-Professional-Education
 ## CPE Credits, Certifications, Workshops, Conferences
 
-**List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:**
+*List (assorted) of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:*
 
 
 **Southern Dallas Progress:**
@@ -48,107 +48,107 @@ https://www.eventbrite.com/e/rancher-rodeo-dallas-tickets-62179999051?aff=eemail
 **Dallas Innovation Alliance:**
 https://www.eventbrite.com/e/dia-may-munch-learn-celebrate-the-new-innov8te-incubator-companies-tickets-61169733319?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-NFTE North Texas:
+**NFTE North Texas:**
 https://www.eventbrite.com/e/nfte-north-texas-regional-challenge-the-road-to-nationals-2019-tickets-54606883659?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-Dallas Real Estate Investment Group & Heritage Risk Advisors:
+**Dallas Real Estate Investment Group & Heritage Risk Advisors:**
 https://www.eventbrite.com/e/the-real-estate-party-wizards-sports-cafe-in-richardson-tx-tickets-60207936559?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-ProductCamp Dallas:
+**ProductCamp Dallas:**
 https://www.eventbrite.com/e/productcamp-dallas-2019-tickets-56297983785?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Dialogue Institute Dallas:
+**Dialogue Institute Dallas:**
 https://www.eventbrite.com/e/2019-ramadan-dinner-at-arapaho-united-methodist-church-tickets-61129103795?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-SMU Graduate Liberal Studies Program In The Simmons School Of Education And Human Development:
+**SMU Graduate Liberal Studies Program In The Simmons School Of Education And Human Development:**
 https://www.eventbrite.com/e/designed-to-inspire-a-lecture-event-celebrating-the-50th-anniversary-of-gls-tickets-57839827481?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-International Students Office:
+**International Students Office:**
 https://www.eventbrite.com/e/international-student-scholarship-workshop-tickets-55664690588?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-SXSW Conference & Festivals:
+**SXSW Conference & Festivals:**
 https://www.eventbrite.com/e/dallas-sxsw-community-meet-up-registration-53650552246?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
 
 
 
 
-Sam's Club Tech Networking Event | Dallas:
+**Sam's Club Tech Networking Event | Dallas:**
 https://www.eventbrite.com/e/sams-club-tech-networking-event-dallas-tickets-50274214529?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Dallas Alteryx User Group Leadership Committee:
+**Dallas Alteryx User Group Leadership Committee:**
 https://www.eventbrite.com/e/dallasfort-worth-alteryx-user-group-september-meeting-tickets-50622905473?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-ACP Foundation:
+**ACP Foundation:**
 https://www.eventbrite.com/e/2018-acp-metrocon-registration-51584224805?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Trevor Hull Tita@GoFlyBoy.Com:
+**Trevor Hull Tita@GoFlyBoy.Com:**
 https://www.eventbrite.com/e/how-machine-learning-can-make-aviation-safer-tickets-53450120750?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Chinese Institute Of Engineers/USA-DFW Chapter:
+**Chinese Institute Of Engineers/USA-DFW Chapter:**
 https://www.eventbrite.com/e/2019-cieusa-dfw-and-aaeoy-international-technology-leadership-conference-registration-64647317868?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-PJ Hoke:
+**PJ Hoke:**
 https://www.eventbrite.com/e/data-and-analytics-summit-tickets-51257267868?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent
 
-Dallas Environmental Quality & Sustainability:
+**Dallas Environmental Quality & Sustainability:**
 https://www.eventbrite.com/e/2019-north-texas-climate-change-symposium-tickets-53109451800?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-Capital Factory + The DEC:
+**Capital Factory + The DEC:**
 https://www.eventbrite.com/e/blockchain-in-practice-accenture-innovation-series-tickets-53363544799?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-NSBE Dallas-Fort Worth Professionals:
+**NSBE Dallas-Fort Worth Professionals:**
 https://www.eventbrite.com/e/nsbedfw-professionals-infosys-may-mixer-tickets-60384132566?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-City Of Dallas - Planning & Urban Design:
+**City Of Dallas - Planning & Urban Design:**
 https://www.eventbrite.com/e/creating-a-neighborhood-plan-workshop-tickets-61606077436?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent
 
-bcWORKSHOP:
+**bcWORKSHOP:**
 https://www.eventbrite.com/e/christie-technology-showcase-tickets-60225178129?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Black Women In Science And Engineering:
+**Black Women In Science And Engineering:**
 https://www.eventbrite.com/e/bwise-presentstech-talkmix-and-mingle-with-the-federal-reserve-bank-tickets-61521806379?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-UX Research And Strategy:
+**UX Research And Strategy:**
 https://www.eventbrite.com/e/inaugural-ux-research-and-strategy-meetup-tickets-61273881830?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-The Talend Community Team:
+**The Talend Community Team:**
 https://www.eventbrite.com/e/dfw-talend-user-group-data-as-a-service-with-talend-cloud-api-service-tickets-63053369325?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Alexander Ladao:
+**Alexander Ladao:**
 https://www.eventbrite.com/e/dynamic-talks-dallas-customer-intelligence-a-machine-learning-approach-tickets-61246996415?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Christie Digital:
+**Christie Digital:**
 https://www.eventbrite.com/e/christie-technology-showcase-tickets-60225178129?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Hacking HR:
+**Hacking HR:**
 https://www.eventbrite.com/e/hacking-hr-dfw-chapter-meetup-4-tickets-62572504044?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-OrganizerCyber Group Inc.:
+**OrganizerCyber Group Inc.:**
 https://www.eventbrite.com/e/panel-discussion-data-the-next-frontier-registration-62520139420#
 
-OrganizerDean Jones - Lead Microsoft Extreme Labs:
+**Microsoft Extreme Labs Startup Saturdays (Organizer - Dean Jones)**
 https://www.eventbrite.com/e/microsoft-extreme-labs-startup-saturdays-tickets-61800924228?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-OrganizerYour Cisco Team:
+**OrganizerYour Cisco Team:**
 https://www.eventbrite.com/e/cisco-se-techbreakfast-june-session-tickets-62668534273?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Impact Ventures:
+**Impact Ventures:**
 https://www.eventbrite.com/e/tribetalk-powering-prosperity-with-intuit-tickets-61742457352?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
 
-AtbpDFW (Formerly AITPDFW):
+**AtbpDFW (Formerly AITPDFW):**
 https://www.eventbrite.com/e/business-technology-networking-group-june-2019-tickets-63304397156?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-888VoIP:
+**888VoIP:**
 https://www.eventbrite.com/e/vodia-training-certification-event-tickets-60484098567?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Thryv:
+**Thryv:**
 https://www.eventbrite.com/e/dfw-small-business-networking-mixer-hosted-by-thryv-tickets-54980211292?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Mpower Business:
+**Mpower Business:**
 https://www.eventbrite.com/e/bridging-the-gap-tech-fest-tickets-47192448885?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
-Wealth On Wealth:
+**Wealth On Wealth:**
 https://www.eventbrite.com/e/free-shark-tanks-robert-herjavec-live-in-dallas-registration-49756715676?utm_source=eb_email&utm_medium=email&utm_campaign=order_confirmation_email&utm_term=eventname&ref=eemailordconf#
 
 
@@ -156,7 +156,7 @@ https://www.eventbrite.com/e/free-shark-tanks-robert-herjavec-live-in-dallas-reg
 
 VOLUNTEER WORK:
 
-The Color Run™ Volunteer:
+**The Color Run™ Volunteer:**
 https://www.eventbrite.com/e/the-color-run-volunteer-dallas-2019-registration-55674039551?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
 
