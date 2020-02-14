@@ -3,7 +3,7 @@ Rist aversion, fear, more passive and indexed based investing since the tech and
 The largest asset managers have been looking for innovaton in the pre-IPO space. So, there's a void developed in the public asset management world. Massive misallocation of capitals. Innovation in the public equity markets - most undervalued part of any equity market  
 ARK Invest is seeking to fill this void. Traditional asset managers need to restructure their research depts. to understand the innovation today  
 
-Inversted Yield Curves:  
+Inverted Yield Curves:  
 i.e., the long-term interest rates have dropped below short-term interest rates -- mostly ending up in recession within 6-18 months  
 ARK Invest: Yield curves are going to flatten and invert for a very good reason. Its called Deflation caused by technological change. Ex: Telephone, ICE, Electricity,...  
 Why Now? - AI, Energy Storage, Robotics, Genome Sequencing, Blockchain Technology (Refer Timeline Graph)  
