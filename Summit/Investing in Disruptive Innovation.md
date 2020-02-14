@@ -16,9 +16,10 @@ Big Ideas 2019:
 3. Battery Cost Tipping Points:  
 4. Autonomous Taxi Networks: Tesla  
 
-5. Next Gen DNA Sequencing: 'Illumina', CRISPR Gene Editing  
+5. Next Gen DNA Sequencing: Curing diseases, not treating them  
+Ex: 'Illumina', CRISPR Gene Editing  
 Ex: Pediatric Blindness - though this is rare, monogenic  
-3 companies with foundational patents for CRISPR-Cas9: Editas, Intellia, CRISPR Therapeutics. Today, these 3 amount to $5B in market cap  
+3 companies with foundational patents for CRISPR-Cas9: Editas, Intellia, CRISPR Therapeutics. Today, these 3 not even amount to $5B in market cap. Undervalued!  
 6. Collaborative Robots: menial tasks, elevat human productivity. Ex: Teradyne  
 7. 3D Printing For End-Use Parts  
 8. Crytocurrecies: In 2018, apart from trading there were $1.1T worth of transactions outside of the US (emerging markets like venezuela, zimbabwe taht is estroying the purchasing power and wealth of its population)  
