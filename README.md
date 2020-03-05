@@ -13,7 +13,7 @@ https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-
 https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
 **Dallas/Fort Worth Retail Executives Association:**  
-**Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)**  
+Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)  
 http://dfwrea.org/
 
 **TechTalk Summits Dallas 2019:**  
