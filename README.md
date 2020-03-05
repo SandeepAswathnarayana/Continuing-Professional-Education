@@ -13,7 +13,8 @@ https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-
 https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
 **Dallas/Fort Worth Retail Executives Association:**  
-https://www.eventbrite.com/e/january-2019-dfw-rea-event-gurmeet-singh-chief-digital-officer-and-chief-information-officer-of-7-tickets-52885205072?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+**Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)**  
+http://dfwrea.org/
 
 **TechTalk Summits Dallas 2019:**  
 https://techtalksummits.com/event/dallas-tx-4/
