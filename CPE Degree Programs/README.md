@@ -2,5 +2,6 @@
  - [PGP AI & ML, Great Learning](https://www.greatlearning.in/pg-program-artificial-intelligence-course)  
  - [PGP in AI & ML, BITS Pilani](https://bits-pilani-wilp.ac.in/certification-programmes/pgp-ai-ml.php)  
  - [Top 10 AI Programs in India](https://analyticsindiamag.com/top-10-courses-and-training-programs-on-artificial-intelligence-in-india-ranking-2019/)  
+ - University of People: Refer to [Ahsan Ahmed Moin](https://www.quora.com/Is-the-University-of-the-People-a-scam-and-what-are-the-reasons)  
  
 
