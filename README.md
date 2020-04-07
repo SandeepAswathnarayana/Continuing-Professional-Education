@@ -74,6 +74,9 @@ https://www.eventbrite.com/e/international-student-scholarship-workshop-tickets-
 **SXSW Conference & Festivals:**
 https://www.eventbrite.com/e/dallas-sxsw-community-meet-up-registration-53650552246?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
 
+**Online Pie & AI: Real-world AI Applications in Medicine**  
+https://www.eventbrite.com/e/online-pie-ai-real-world-ai-applications-in-medicine-tickets-101229766958  
+
 
 
 
