@@ -77,6 +77,10 @@ https://www.eventbrite.com/e/dallas-sxsw-community-meet-up-registration-53650552
 **Online Pie & AI: Real-world AI Applications in Medicine**  
 https://www.eventbrite.com/e/online-pie-ai-real-world-ai-applications-in-medicine-tickets-101229766958  
 
+**AI for Healthcare in the Time of COVID-19**  
+https://www.udacity.com/ai_in_healthcare/virtual_conference  
+
+
 
 
 
