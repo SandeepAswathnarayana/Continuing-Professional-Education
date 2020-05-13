@@ -80,6 +80,9 @@ https://www.eventbrite.com/e/online-pie-ai-real-world-ai-applications-in-medicin
 **AI for Healthcare in the Time of COVID-19**  
 https://www.udacity.com/ai_in_healthcare/virtual_conference  
 
+**AWS Summit Online US & Canada 2020**  
+https://aws.amazon.com/events/summits/online/us-canada/  
+
 
 
 
