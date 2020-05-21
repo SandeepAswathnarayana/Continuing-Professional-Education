@@ -5,85 +5,60 @@
 
 
 
-[**Southern Dallas Progress:**](https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
+[**Southern Dallas Progress**](https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**OrganizerSouthern Dallas Progress Community Development Corporation:
-(DCCCD Bill J. Priest Institute for Economic Development)**
-https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**OrganizerSouthern Dallas Progress Community Development Corporation
+(DCCCD Bill J. Priest Institute for Economic Development)**](https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**Dallas/Fort Worth Retail Executives Association:**  
-Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)  
-http://dfwrea.org/
+[**Dallas/Fort Worth Retail Executives Association**](Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)  
+http://dfwrea.org/)
 
-**TechTalk Summits Dallas 2019:**  
-https://techtalksummits.com/event/dallas-tx-4/
+[**TechTalk Summits Dallas 2019**](https://techtalksummits.com/event/dallas-tx-4/)
 
-**North Texas Tableau User Group (Organizer - Joey Ramos):**
-https://www.linkedin.com/groups/12131317/
-                  ___ and ___
-https://www.eventbrite.com/e/october-2018-north-texas-tableau-user-group-tickets-50444552013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**North Texas Tableau User Group (Organizer - Joey Ramos)**][https://www.eventbrite.com/e/october-2018-north-texas-tableau-user-group-tickets-50444552013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#]  
+[LinkedIn](https://www.linkedin.com/groups/12131317/)  
 
-**Founders Live:**
-https://www.eventbrite.com/e/founders-live-dallas-tickets-53862306609?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**Founders Live**](https://www.eventbrite.com/e/founders-live-dallas-tickets-53862306609?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**1 million cups, venture x:**
+**1 million cups, venture x**
 
-**OrganizerThe C1 Innovation Lab And The DEC Network:**
-https://www.eventbrite.com/e/health-innovation-networking-event-tickets-62511173603?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**OrganizerThe C1 Innovation Lab And The DEC Network**](https://www.eventbrite.com/e/health-innovation-networking-event-tickets-62511173603?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**The National Society Of Collegiate Scholars:**
-https://www.eventbrite.com/e/networking-with-nscs-dallas-chapters-tickets-59448483013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**The National Society Of Collegiate Scholars**](https://www.eventbrite.com/e/networking-with-nscs-dallas-chapters-tickets-59448483013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**National Black MBA Association | Dallas - Fort Worth Chapter:**
-https://www.eventbrite.com/e/learn-to-play-a-winning-game-corporate-spotlight-with-unitedhealth-group-tickets-62389218833?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**National Black MBA Association | Dallas - Fort Worth Chapter**](https://www.eventbrite.com/e/learn-to-play-a-winning-game-corporate-spotlight-with-unitedhealth-group-tickets-62389218833?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**AA-ISP:**
-https://www.eventbrite.com/e/digital-sales-world-dallas-tickets-63112513226?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**AA-ISP**](https://www.eventbrite.com/e/digital-sales-world-dallas-tickets-63112513226?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**Lane Gorman Trubitt, LLC (LGT):**
-https://www.eventbrite.com/e/summit-2019-tickets-57537050868?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**Lane Gorman Trubitt, LLC (LGT)**](https://www.eventbrite.com/e/summit-2019-tickets-57537050868?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**SMU Master Of Arts In Design And Innovation (MADI):**
-https://www.eventbrite.com/e/smu-inside-the-designers-studio-with-james-helms-tickets-56441257320?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**SMU Master Of Arts In Design And Innovation (MADI)**](https://www.eventbrite.com/e/smu-inside-the-designers-studio-with-james-helms-tickets-56441257320?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**Rancher Labs:**
-https://www.eventbrite.com/e/rancher-rodeo-dallas-tickets-62179999051?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**Rancher Labs**](https://www.eventbrite.com/e/rancher-rodeo-dallas-tickets-62179999051?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**Dallas Innovation Alliance:**
-https://www.eventbrite.com/e/dia-may-munch-learn-celebrate-the-new-innov8te-incubator-companies-tickets-61169733319?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
+[**Dallas Innovation Alliance**](https://www.eventbrite.com/e/dia-may-munch-learn-celebrate-the-new-innov8te-incubator-companies-tickets-61169733319?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#)
 
-**NFTE North Texas:**
-https://www.eventbrite.com/e/nfte-north-texas-regional-challenge-the-road-to-nationals-2019-tickets-54606883659?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
+[**NFTE North Texas**](https://www.eventbrite.com/e/nfte-north-texas-regional-challenge-the-road-to-nationals-2019-tickets-54606883659?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#)
 
-**Dallas Real Estate Investment Group & Heritage Risk Advisors:**
-https://www.eventbrite.com/e/the-real-estate-party-wizards-sports-cafe-in-richardson-tx-tickets-60207936559?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**Dallas Real Estate Investment Group & Heritage Risk Advisors**](https://www.eventbrite.com/e/the-real-estate-party-wizards-sports-cafe-in-richardson-tx-tickets-60207936559?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**ProductCamp Dallas:**
-https://www.eventbrite.com/e/productcamp-dallas-2019-tickets-56297983785?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**ProductCamp Dallas**](https://www.eventbrite.com/e/productcamp-dallas-2019-tickets-56297983785?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**Dialogue Institute Dallas:**
-https://www.eventbrite.com/e/2019-ramadan-dinner-at-arapaho-united-methodist-church-tickets-61129103795?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
+[**Dialogue Institute Dallas**](https://www.eventbrite.com/e/2019-ramadan-dinner-at-arapaho-united-methodist-church-tickets-61129103795?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#)
 
-**SMU Graduate Liberal Studies Program In The Simmons School Of Education And Human Development:**
-https://www.eventbrite.com/e/designed-to-inspire-a-lecture-event-celebrating-the-50th-anniversary-of-gls-tickets-57839827481?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#
+[**SMU Graduate Liberal Studies Program In The Simmons School Of Education And Human Development**](https://www.eventbrite.com/e/designed-to-inspire-a-lecture-event-celebrating-the-50th-anniversary-of-gls-tickets-57839827481?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#)
 
-**International Students Office:**
-https://www.eventbrite.com/e/international-student-scholarship-workshop-tickets-55664690588?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**International Students Office**](https://www.eventbrite.com/e/international-student-scholarship-workshop-tickets-55664690588?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**SXSW Conference & Festivals:**
-https://www.eventbrite.com/e/dallas-sxsw-community-meet-up-registration-53650552246?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**SXSW Conference & Festivals**](https://www.eventbrite.com/e/dallas-sxsw-community-meet-up-registration-53650552246?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**Online Pie & AI: Real-world AI Applications in Medicine**  
-https://www.eventbrite.com/e/online-pie-ai-real-world-ai-applications-in-medicine-tickets-101229766958  
+[**Online Pie & AI: Real-world AI Applications in Medicine**](https://www.eventbrite.com/e/online-pie-ai-real-world-ai-applications-in-medicine-tickets-101229766958)
 
-**AI for Healthcare in the Time of COVID-19**  
-https://www.udacity.com/ai_in_healthcare/virtual_conference  
+[**AI for Healthcare in the Time of COVID-19**](https://www.udacity.com/ai_in_healthcare/virtual_conference)
 
-**AWS Summit Online US & Canada 2020**  
-https://aws.amazon.com/events/summits/online/us-canada/  
+[**AWS Summit Online US & Canada 2020**](https://aws.amazon.com/events/summits/online/us-canada/)
 
-**NVIDIA DRIVE AGX Solutions for Scalable Autonomous Vehicle Development**  
-https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg20.jsp&email=saswathnaray%40smu.edu&loginaction=y&recookie=y&deletecookie=true&target=reg20.jsp&partnerref=marketoemail&eventid=2314049&sessionid=1&key=97F3530DEDE15A1DEAD031F58823FDA9&sourcepage=register&sourcepage=register&errorcd=loginfailed  
+[**NVIDIA DRIVE AGX Solutions for Scalable Autonomous Vehicle Development**](https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg20.jsp&email=saswathnaray%40smu.edu&loginaction=y&recookie=y&deletecookie=true&target=reg20.jsp&partnerref=marketoemail&eventid=2314049&sessionid=1&key=97F3530DEDE15A1DEAD031F58823FDA9&sourcepage=register&sourcepage=register&errorcd=loginfailed)
 
 
 
