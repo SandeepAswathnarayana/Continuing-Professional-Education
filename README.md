@@ -83,6 +83,8 @@ https://www.udacity.com/ai_in_healthcare/virtual_conference
 **AWS Summit Online US & Canada 2020**  
 https://aws.amazon.com/events/summits/online/us-canada/  
 
+**NVIDIA DRIVE AGX Solutions for Scalable Autonomous Vehicle Development**  
+https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg20.jsp&email=saswathnaray%40smu.edu&loginaction=y&recookie=y&deletecookie=true&target=reg20.jsp&partnerref=marketoemail&eventid=2314049&sessionid=1&key=97F3530DEDE15A1DEAD031F58823FDA9&sourcepage=register&sourcepage=register&errorcd=loginfailed  
 
 
 
