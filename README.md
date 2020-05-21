@@ -19,7 +19,7 @@ Organizer: Joey Ramos
 
 [**Founders Live**](https://www.eventbrite.com/e/founders-live-dallas-tickets-53862306609?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-**1 million cups, venture x**
+[**1 Million Cups, Venture X**](https://www.1millioncups.com/dallas)
 
 [**OrganizerThe C1 Innovation Lab And The DEC Network**](https://www.eventbrite.com/e/health-innovation-networking-event-tickets-62511173603?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
