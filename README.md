@@ -5,8 +5,7 @@
 
 
 
-**Southern Dallas Progress:**
-https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#
+[**Southern Dallas Progress:**](https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
 **OrganizerSouthern Dallas Progress Community Development Corporation:
 (DCCCD Bill J. Priest Institute for Economic Development)**
