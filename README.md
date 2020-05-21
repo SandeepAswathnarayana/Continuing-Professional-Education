@@ -9,12 +9,12 @@
 
 [**OrganizerSouthern Dallas Progress Community Development Corporation: DCCCD Bill J. Priest Institute for Economic Development**](https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-[**Dallas/Fort Worth Retail Executives Association**](Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)  
-http://dfwrea.org/)
+[**Dallas/Fort Worth Retail Executives Association**](http://dfwrea.org/)  
+Member and Graduate Assistant at DFW-REA (Sep 2018 - May 2019)
 
 [**TechTalk Summits Dallas 2019**](https://techtalksummits.com/event/dallas-tx-4/)
 
-[**North Texas Tableau User Group**][https://www.eventbrite.com/e/october-2018-north-texas-tableau-user-group-tickets-50444552013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#]  
+[**North Texas Tableau User Group**](https://www.eventbrite.com/e/october-2018-north-texas-tableau-user-group-tickets-50444552013?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 [LinkedIn](https://www.linkedin.com/groups/12131317/)  
 Organizer: Joey Ramos
 
