@@ -61,9 +61,10 @@ Organizer: Joey Ramos
 
 [**NVIDIA DRIVE AGX Solutions for Scalable Autonomous Vehicle Development**](https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg20.jsp&email=saswathnaray%40smu.edu&loginaction=y&recookie=y&deletecookie=true&target=reg20.jsp&partnerref=marketoemail&eventid=2314049&sessionid=1&key=97F3530DEDE15A1DEAD031F58823FDA9&sourcepage=register&sourcepage=register&errorcd=loginfailed)  
 
-[Scikit-learn Sprint 2020](https://sites.google.com/view/nyc-2020-scikit-sprint/contributors)  
+[**Scikit-learn Sprint 2020**](https://sites.google.com/view/nyc-2020-scikit-sprint/contributors)  
 
-[Cloud Native Security, IBM Developer Conferenece 2020](https://developer.ibm.com/conferences/digital-developer-conference-security/)  
+[**Cloud Native Security, IBM Developer Conference 2020**](https://developer.ibm.com/conferences/digital-developer-conference-security/)  
+
 
 
 
