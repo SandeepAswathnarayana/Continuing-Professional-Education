@@ -63,6 +63,15 @@ Organizer: Joey Ramos
 
 [Scikit-learn Sprint 2020](https://sites.google.com/view/nyc-2020-scikit-sprint/contributors)  
 
+[Cloud Native Security, IBM Developer Conferenece 2020](https://developer.ibm.com/conferences/digital-developer-conference-security/)  
+
+
+
+
+
+
+
+
 
 
 [**Sam's Club Tech Networking Event | Dallas**](https://www.eventbrite.com/e/sams-club-tech-networking-event-dallas-tickets-50274214529?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
