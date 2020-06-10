@@ -63,7 +63,7 @@ Organizer: Joey Ramos
 
 [**Scikit-learn Sprint 2020**](https://sites.google.com/view/nyc-2020-scikit-sprint/contributors)  
 
-[**Cloud Native Security, IBM Developer Conference 2020**](https://developer.ibm.com/conferences/digital-developer-conference-security/)  
+[**Cloud Native Security, IBM Developer Conference 2020**](https://developer.ibm.com/conferences/digital-developer-conference-security/)    
 [**Google Cloud Next '20**](https://cloud.withgoogle.com/next/sf)  
 
 
