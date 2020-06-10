@@ -47,7 +47,7 @@ Organizer: Joey Ramos
 
 [**SMU Graduate Liberal Studies Program In The Simmons School Of Education And Human Development**](https://www.eventbrite.com/e/designed-to-inspire-a-lecture-event-celebrating-the-50th-anniversary-of-gls-tickets-57839827481?aff=eemailordconf&utm_campaign=order_confirm&ref=eemailordconf&utm_medium=email&utm_source=eb_email&utm_term=viewevent#)
 
-[**International Students Office**](https://www.eventbrite.com/e/international-student-scholarship-workshop-tickets-55664690588?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
+[**International Student Scholarship Workshop**](https://www.eventbrite.com/e/international-student-scholarship-workshop-tickets-55664690588?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
 [**SXSW Conference & Festivals**](https://www.eventbrite.com/e/dallas-sxsw-community-meet-up-registration-53650552246?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
