@@ -67,7 +67,7 @@ Organizer: Joey Ramos
 
 [**Google Cloud Next '20**](https://cloud.withgoogle.com/next/sf)  
 
-[AWS DEV DAY 2020](https://www.snowflake.com/webinar/virtual-hands-on-labs/aws-devday-building-modern-machine-learning-applications/)  
+[**AWS DEV DAY 2020**](https://www.snowflake.com/webinar/virtual-hands-on-labs/aws-devday-building-modern-machine-learning-applications/)  
 
 
 
