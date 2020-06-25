@@ -69,7 +69,7 @@ Organizer: Joey Ramos
 
 [**AWS DEV DAY 2020**](https://www.snowflake.com/webinar/virtual-hands-on-labs/aws-devday-building-modern-machine-learning-applications/)  
 
-
+[**Speeding Up Solar Analysis Using Machine Learning with NASA**](https://info.nvidia.com/solar-analysis-with-nasa-reg-page.html?thankyou=true&aliId=eyJpIjoiMWNtaHR1WktyYzJxRDJFZyIsInQiOiJMQ0x2Tm9MWE9lZUZ1azVYeXAwTlJnPT0ifQ%253D%253D&ondemandrgt=yes)  
 
 
 
