@@ -6,6 +6,7 @@
  - University of People: Refer to [Ahsan Ahmed Moin](https://www.quora.com/Is-the-University-of-the-People-a-scam-and-what-are-the-reasons)  
  - [Advanced Machine Learning Specialization](https://www.coursera.org/specializations/aml) - Advanced level, 20 Instructors, Top Kagglers  
  - [Advanced AI/ML Courses](https://towardsdatascience.com/what-are-some-advanced-ai-and-machine-learning-online-courses-8609ab281450) by Tirthajyoti Sarkar.  
+ - [Coursera Online Degree Partners](https://www.coursera.org/about/partners) - Universities and Organizations. Reach out to Instructors and Admissions.  
  
  
  
