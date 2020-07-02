@@ -73,7 +73,7 @@ Organizer: Joey Ramos
 
 [**AWS Public Sector Summit 2020**](https://aws.amazon.com/events/summits/online/public-sector/)  
 
-
+[Energy Source Innovation Stream: Autonomous vehicle technology](https://www.atlanticcouncil.org/event/energy-source-innovation-stream-autonomous-vehicle-technology/)  
 
 
 
