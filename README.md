@@ -75,7 +75,7 @@ Organizer: Joey Ramos
 
 [**Energy Source Innovation Stream: Autonomous vehicle technology**](https://www.atlanticcouncil.org/event/energy-source-innovation-stream-autonomous-vehicle-technology/)  
 
-
+[AI Applications Virtual Summit 2020](https://www.re-work.co/summits/virtual-ai-summit-september-2020?utm_source=LinkedIn&utm_medium=Message&utm_campaign=AI_VirtualSept_JOHN)  
 
 
 [**Sam's Club Tech Networking Event | Dallas**](https://www.eventbrite.com/e/sams-club-tech-networking-event-dallas-tickets-50274214529?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
