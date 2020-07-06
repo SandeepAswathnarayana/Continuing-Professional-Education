@@ -77,6 +77,13 @@ Organizer: Joey Ramos
 
 [**AI Applications Virtual Summit 2020**](https://www.re-work.co/summits/virtual-ai-summit-september-2020?utm_source=LinkedIn&utm_medium=Message&utm_campaign=AI_VirtualSept_JOHN)  
 
+[**Deep Learning for Intelligent Video Analytics**](https://info.nvidia.com/deep-learning-video-analytics-reg-page.html?ncid=so-twit-55730&sfdcid=VT26#cid=_so-twit_en-gb&ondemandrgt=yes)  
+
+
+
+
+
+
 
 [**Sam's Club Tech Networking Event | Dallas**](https://www.eventbrite.com/e/sams-club-tech-networking-event-dallas-tickets-50274214529?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
