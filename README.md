@@ -79,6 +79,8 @@ Organizer: Joey Ramos
 
 [**NVIDIA Deep Learning for Intelligent Video Analytics**](https://info.nvidia.com/deep-learning-video-analytics-reg-page.html?ncid=so-twit-55730&sfdcid=VT26#cid=_so-twit_en-gb&ondemandrgt=yes)  
 
+[**NVIDIA HPC Summit Digital**](https://info.nvidia.com/hpc-summit-digital-2020-sessions.html)  
+
 
 
 
