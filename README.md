@@ -81,6 +81,9 @@ Organizer: Joey Ramos
 
 [**NVIDIA HPC Summit Digital**](https://info.nvidia.com/hpc-summit-digital-2020-sessions.html)  
 
+[**MKAI July Expert Forum | Using Artificial Intelligence For Good**](https://www.eventbrite.co.uk/e/mkai-july-expert-forum-using-artificial-intelligence-for-good-tickets-108963795646)  
+
+
 
 
 
