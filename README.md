@@ -77,7 +77,7 @@ Organizer: Joey Ramos
 
 [**AI Applications Virtual Summit 2020**](https://www.re-work.co/summits/virtual-ai-summit-september-2020?utm_source=LinkedIn&utm_medium=Message&utm_campaign=AI_VirtualSept_JOHN)  
 
-[**Deep Learning for Intelligent Video Analytics**](https://info.nvidia.com/deep-learning-video-analytics-reg-page.html?ncid=so-twit-55730&sfdcid=VT26#cid=_so-twit_en-gb&ondemandrgt=yes)  
+[**NVIDIA Deep Learning for Intelligent Video Analytics**](https://info.nvidia.com/deep-learning-video-analytics-reg-page.html?ncid=so-twit-55730&sfdcid=VT26#cid=_so-twit_en-gb&ondemandrgt=yes)  
 
 
 
