@@ -4,7 +4,6 @@
 ## An assorted list of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:  
 
 
-
 [**Southern Dallas Progress**](https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
 [**OrganizerSouthern Dallas Progress Community Development Corporation: DCCCD Bill J. Priest Institute for Economic Development**](https://www.eventbrite.com/e/southern-dallas-progress-cdc-financial-literacy-symposium-tickets-51341224986?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
@@ -88,7 +87,7 @@ Organizer: Joey Ramos
 
 
 
-
+## Networking Events  
 
 [**Sam's Club Tech Networking Event | Dallas**](https://www.eventbrite.com/e/sams-club-tech-networking-event-dallas-tickets-50274214529?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
@@ -141,12 +140,11 @@ Organizer - Dean Jones
 
 [**Mpower Business**](https://www.eventbrite.com/e/bridging-the-gap-tech-fest-tickets-47192448885?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
-[**Wealth On Wealth**](https://www.eventbrite.com/e/free-shark-tanks-robert-herjavec-live-in-dallas-registration-49756715676?utm_source=eb_email&utm_medium=email&utm_campaign=order_confirmation_email&utm_term=eventname&ref=eemailordconf#)
+[**Wealth On Wealth**](https://www.eventbrite.com/e/free-shark-tanks-robert-herjavec-live-in-dallas-registration-49756715676?utm_source=eb_email&utm_medium=email&utm_campaign=order_confirmation_email&utm_term=eventname&ref=eemailordconf#)  
 
 
 
-
-VOLUNTEER WORK:
+## Volunteer Work  
 
 [**The Color Run™ Volunteer**](https://www.eventbrite.com/e/the-color-run-volunteer-dallas-2019-registration-55674039551?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
 
