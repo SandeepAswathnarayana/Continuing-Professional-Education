@@ -82,7 +82,7 @@ Organizer: Joey Ramos
 
 [**MKAI July Expert Forum | Using Artificial Intelligence For Good**](https://www.eventbrite.co.uk/e/mkai-july-expert-forum-using-artificial-intelligence-for-good-tickets-108963795646)  
 
-
+[**Accelerate Spark 3.0 with Google Cloud Dataproc and NVIDIA GPUs**](https://info.nvidia.com/accelerate-spark-3-with-gcp-and-nvidia-gpus-reg-page.html?ncid=em-webi-84881#cid=_em-webi_en-us)  
 
 
 
