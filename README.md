@@ -84,6 +84,9 @@ Organizer: Joey Ramos
 
 [**Accelerate Spark 3.0 with Google Cloud Dataproc and NVIDIA GPUs**](https://info.nvidia.com/accelerate-spark-3-with-gcp-and-nvidia-gpus-reg-page.html?ncid=em-webi-84881#cid=_em-webi_en-us)  
 
+[**NVIDIA DGX A100 - The Universal AI System for Higher Education and Research**](https://info.nvidia.com/her-dgx-a100-reg-page.html?ncid=em-targ-31687#cid=ix01_em-targ_en-us)  
+
+
 
 
 
