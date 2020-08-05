@@ -86,6 +86,11 @@ Organizer: Joey Ramos
 
 [**NVIDIA DGX A100 - The Universal AI System for Higher Education and Research**](https://info.nvidia.com/her-dgx-a100-reg-page.html?ncid=em-targ-31687#cid=ix01_em-targ_en-us)  
 
+[**Your Path to NLP Mastery in Dataiku DSS**](https://www.brighttalk.com/webcast/17108/430154?utm_campaign=CONTENT%20NLP%20in%20Dataiku%20Webinar%20August%202020&utm_medium=email&_hsmi=92631365&_hsenc=p2ANqtz-_1FEaQxQ9yGu3TmTxsP5sD_2-qNbds6rTtMG1z58y9tL_lg0nN-l8X0N91Izd405hB0P2667V2DJrPmTRIva6HX4-Q8g&utm_content=92413141&utm_source=hs_email)  
+
+
+
+
 
 
 
