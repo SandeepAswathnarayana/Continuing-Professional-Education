@@ -88,7 +88,9 @@ Organizer: Joey Ramos
 
 [**Your Path to NLP Mastery in Dataiku DSS**](https://www.brighttalk.com/webcast/17108/430154?utm_campaign=CONTENT%20NLP%20in%20Dataiku%20Webinar%20August%202020&utm_medium=email&_hsmi=92631365&_hsenc=p2ANqtz-_1FEaQxQ9yGu3TmTxsP5sD_2-qNbds6rTtMG1z58y9tL_lg0nN-l8X0N91Izd405hB0P2667V2DJrPmTRIva6HX4-Q8g&utm_content=92413141&utm_source=hs_email)  
 
+[Optimizing Personalization Using Machine Learning & AI w/ Accenture](https://www.brighttalk.com/webcast/17108/430219?utm_campaign=channel-feed&utm_source=brighttalk-portal&utm_medium=web)  
 
+[The Power of AI in the Insurance Industry | With Dataiku and Aviva](https://www.brighttalk.com/webcast/17108/425696?utm_campaign=channel-feed&utm_source=brighttalk-portal&utm_medium=web)  
 
 
 
