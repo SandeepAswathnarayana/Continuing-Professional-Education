@@ -90,7 +90,7 @@ Organizer: Joey Ramos
 
 [**Optimizing Personalization Using Machine Learning & AI w/ Accenture**](https://www.brighttalk.com/webcast/17108/430219?utm_campaign=channel-feed&utm_source=brighttalk-portal&utm_medium=web)  
 
-**[The Power of AI in the Insurance Industry | With Dataiku and Aviva**](https://www.brighttalk.com/webcast/17108/425696?utm_campaign=channel-feed&utm_source=brighttalk-portal&utm_medium=web)  
+[**The Power of AI in the Insurance Industry | With Dataiku and Aviva**](https://www.brighttalk.com/webcast/17108/425696?utm_campaign=channel-feed&utm_source=brighttalk-portal&utm_medium=web)  
 
 
 
