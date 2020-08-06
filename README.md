@@ -96,7 +96,7 @@ Organizer: Joey Ramos
 
 [**GPU-Accelerated Drug Discovery Methods and Applications**](https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg30.jsp&ncid=so-elev-83721&eventid=2355571&sessionid=1&key=496C86332F932E18E52B465D343E9469&regTag=&sourcepage=register)  
 
-[VMworld 2020](https://my.vmworld.com/widget/vmware/vmworld2020/catalog?)  
+[**VMworld 2020**](https://my.vmworld.com/widget/vmware/vmworld2020/catalog?)  
 
 
 
