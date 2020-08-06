@@ -92,7 +92,7 @@ Organizer: Joey Ramos
 
 [**The Power of AI in the Insurance Industry | With Dataiku and Aviva**](https://www.brighttalk.com/webcast/17108/425696?utm_campaign=channel-feed&utm_source=brighttalk-portal&utm_medium=web)  
 
-
+[**Introducing DRIVE Infrastructure – The Complete Datacenter Infrastructure to Build Autonomous Vehicles**](https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg20.jsp&partnerref=Email&mkt_tok=eyJpIjoiWldGa1kyWmpNVFpqTnpJeiIsInQiOiJaNnN1MkVlbVVYaHJSTUd5VEEyMU5OTFJsYkdjUnFhS2FHZ3lHbTNYSHFrQUJEXC9yZW51aFRWNG5YR0pmdjRUSk40UFpkY2ZKd2xJeFErU3F5YmVRanlYdm8zYmVcL0lPY2dyUWJ3T0I2aFVVSXl4VXhyUEE4ZTNYQ3Z5aXI3WjVRIn0%3D&eventid=2316676&sessionid=1&key=8E634330B0C5CCCF17667ED481F63090&regTag=983851&sourcepage=register)  
 
 
 
