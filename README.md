@@ -94,6 +94,13 @@ Organizer: Joey Ramos
 
 [**Introducing DRIVE Infrastructure – The Complete Datacenter Infrastructure to Build Autonomous Vehicles**](https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg20.jsp&partnerref=Email&mkt_tok=eyJpIjoiWldGa1kyWmpNVFpqTnpJeiIsInQiOiJaNnN1MkVlbVVYaHJSTUd5VEEyMU5OTFJsYkdjUnFhS2FHZ3lHbTNYSHFrQUJEXC9yZW51aFRWNG5YR0pmdjRUSk40UFpkY2ZKd2xJeFErU3F5YmVRanlYdm8zYmVcL0lPY2dyUWJ3T0I2aFVVSXl4VXhyUEE4ZTNYQ3Z5aXI3WjVRIn0%3D&eventid=2316676&sessionid=1&key=8E634330B0C5CCCF17667ED481F63090&regTag=983851&sourcepage=register)  
 
+[GPU-Accelerated Drug Discovery Methods and Applications](https://event.on24.com/eventRegistration/EventLobbyServlet?target=reg30.jsp&ncid=so-elev-83721&eventid=2355571&sessionid=1&key=496C86332F932E18E52B465D343E9469&regTag=&sourcepage=register)  
+
+
+
+
+
+
 
 
 
