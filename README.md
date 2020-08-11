@@ -98,6 +98,8 @@ Organizer: Joey Ramos
 
 [**VMworld 2020**](https://my.vmworld.com/widget/vmware/vmworld2020/catalog?)  
 
+[**Montreal AI Symposium 2020**](http://montrealaisymposium.com/)  
+
 
 
 
