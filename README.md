@@ -100,6 +100,8 @@ Organizer: Joey Ramos
 
 [**Montreal AI Symposium 2020**](http://montrealaisymposium.com/)  
 
+[**AICI Forum 2020**](https://www.humantechnology.at/de/aktuelles/termine/veranstaltung/255/)  
+
 
 
 
