@@ -102,7 +102,7 @@ Organizer: Joey Ramos
 
 [**AICI Forum 2020**](https://www.humantechnology.at/de/aktuelles/termine/veranstaltung/255/)  
 
-
+[**Accelerating AI/ML Workflows With Amazon SageMaker And NVIDIA NGC**](https://info.nvidia.com/accelerating-ai-ml-workflows-aws-sagemaker-nvidia-ngc-reg-page.html?ncid=em-webi-93780#cid=ngc01_em-webi_en-us)  
 
 
 
