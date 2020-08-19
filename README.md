@@ -2,6 +2,7 @@
 **[CPE Credits, Certifications, Workshops, Conferences, Networking Events]**
 
 ## An assorted list of Conferences, Symposia, Tech Seminars & Workshops I have moderated and/or represented my organizations in the recent past:  
+This is (one of the few methods) how I keep abreast of the disruptive innovation that keeps me curious and pursue my endeavors  
 
 
 [**Southern Dallas Progress**](https://www.eventbrite.com/e/southern-dallas-progress-community-meet-up-tickets-63544898502?aff=eemailordconf&utm_campaign=order_confirm&utm_medium=email&ref=eemailordconf&utm_source=eb_email&utm_term=viewevent#)
