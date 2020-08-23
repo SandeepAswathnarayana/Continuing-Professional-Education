@@ -13,11 +13,6 @@
  - [Coursera Online Degree Partners](https://www.coursera.org/about/partners) - Universities and Organizations. Reach out to Instructors and Admissions.  
  - [Unilever Future Leaders Programme](https://www.unilever.com/careers/students-and-graduates/unilever-future-leaders-programme.html)  
  
-## Crash Courses
-- [Google Project Management](https://grow.google/jobprojectmanage/?utm_source=email&utm_medium=email&utm_campaign=newcertsfollowup&utm_content=primerprojectmanger)  
-- [Google Data Analyst](https://grow.google/jobdataanalyst/?utm_source=email&utm_medium=email&utm_campaign=newcertsfollowup&utm_content=primeranalyst)  
-- [Google UX Design](https://grow.google/jobuxdesign/?utm_source=email&utm_medium=email&utm_campaign=newcertsfollowup&utm_content=primeruxdesign)  
-- []()  
- 
+
  
 
