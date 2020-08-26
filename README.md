@@ -104,8 +104,6 @@ Organizer: Joey Ramos
 
 [**Accelerating AI/ML Workflows With Amazon SageMaker And NVIDIA NGC**](https://info.nvidia.com/accelerating-ai-ml-workflows-aws-sagemaker-nvidia-ngc-reg-page.html?ncid=em-webi-93780#cid=ngc01_em-webi_en-us)  
 
-[**Accelerating AI/ML Workflows with Amazon SageMaker and NVIDIA NGC**](https://info.nvidia.com/accelerating-ai-ml-workflows-aws-sagemaker-nvidia-ngc-reg-page.html)  
-
 
 
 
