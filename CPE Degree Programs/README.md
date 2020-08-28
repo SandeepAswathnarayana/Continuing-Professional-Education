@@ -2,6 +2,7 @@
  - [BITS Pilani WILP](https://bits-pilani-wilp.ac.in/)  
  - [Harvard Extension School](https://www.extension.harvard.edu/harvard-education-designed-for-you?utm_campaign=EXT&utm_medium=social&utm_source=linkedin&utm_content=TextAds_certificate)  
  - [Google IT Automation with Python Professional Certificate](https://www.coursera.org/professional-certificates/google-it-automation)  
+ - [PG Diploma in ML & AI](https://execed.cvn.columbia.edu/pgdmlai/index.php)  
  - [fast.ai](https://www.fast.ai/)  
  - [freeCodeCamp](https://www.freecodecamp.org/)  
  - [PGP AI & ML, Great Learning](https://www.greatlearning.in/pg-program-artificial-intelligence-course)  
