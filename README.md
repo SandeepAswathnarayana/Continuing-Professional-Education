@@ -104,7 +104,9 @@ Organizer: Joey Ramos
 
 [**Accelerating AI/ML Workflows With Amazon SageMaker And NVIDIA NGC**](https://info.nvidia.com/accelerating-ai-ml-workflows-aws-sagemaker-nvidia-ngc-reg-page.html?ncid=em-webi-93780#cid=ngc01_em-webi_en-us)  
 
+[**Stanford Biodesign Virtual Apple iOS + Google Cloud Buildathon**](https://cloudonair.withgoogle.com/events/stanford-biodesign-virtual-appleios-google-cloud-buildathon?mkt_tok=eyJpIjoiWXpSaU5tVmlaRFUxTTJReCIsInQiOiJmNTBcL3VmMmJ3dXdzd1U0U2wyY3dzVWVNU01ocFk2NmJCdGVGVTMzUEhzXC8rMzZGakpQczFMOU16VFN4ekpRVmZyMXRndmZKXC9QUXlsRVVmZXgzOFRGcXRNWFVvQjBuV0RpWWpBdDdpZE1iWWNGT2dHUWM5WFlRVmg1Z3dQWUt2d1lYMEdoK3RKUmZ2U09INWVJV3FmcVE9PSJ9)  
 
+[**IMPACT 20**](https://imanetwork.com/impact20/)  
 
 
 
