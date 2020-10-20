@@ -108,6 +108,8 @@ Organizer: Joey Ramos
 
 [**IMPACT 20**](https://imanetwork.com/impact20/)  
 
+[**Machine Learning and Computer Vision - ASEAN Webinar Series**](https://pages.awscloud.com/asean-ml-cv-webinar-reg.html?trk=asean-webinar-series-dir)  
+
 
 
 
